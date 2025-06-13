@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Catloaf24
 - 👀 I’m interested in programming, gaming and kickboxing
-- 🌱 I’m currently learning for compleating highschool
+- 🌱 I’m currently studying for completing highschool
 - 💞️ I’m looking to collaborate on game- and software programming 
 - 📫 How to reach me: just DM me on Discord (Katzoffel)
 
